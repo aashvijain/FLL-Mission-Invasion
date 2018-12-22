@@ -1,1 +1,1 @@
-I like glitter. Glitter is amazing and Aashvi is. - Aashvi 
+I like glitter. Glitter is amazing.
